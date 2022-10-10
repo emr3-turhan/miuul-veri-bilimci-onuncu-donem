@@ -1,0 +1,1 @@
+# miuul-veri-bilimci-onuncu-donem
